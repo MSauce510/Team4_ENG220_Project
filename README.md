@@ -6,3 +6,5 @@ Taos's energy model
 , expanding Cuba's power grid
 , researching the terrain of Cuba and possible types of energy it can produce
 , the benefits of different types of energy and which one is best for Cuba
+
+Matthew will focus on Taos's energy model, 
