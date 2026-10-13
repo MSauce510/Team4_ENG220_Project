@@ -9,3 +9,7 @@ Taos's energy model
 , the benefits of different types of energy and which one is best for Cuba
 
 Matthew will focus on Taos's energy model, 
+ Kayla will research expanding the power grid,
+ Avi will contribute the data for the filtration systems,
+ Channi will look at the terrain of Cuba and how it can be utilized
+ Nannette will provide the different types of benefits of each energy source and which one is best suited for Cuba
