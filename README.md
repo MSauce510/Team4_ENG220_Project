@@ -15,3 +15,12 @@ Expanding Cuba's power grid - Kayla
 Researching the terrain of Cuba and possible types of energy it can produce - Channi
 
 The benefits of different types of energy and which one is best for Cuba - Nannette
+
+Sources: 
+https://www.cubanm.gov/wp-content/uploads/2025/04/TownofCuba.pdf  
+https://www.emnrd.nm.gov/sfd/wp-content/uploads/sites/4/Sandoval-County-CWPP2012.pdf 
+https://www.spa.usace.army.mil/Portals/16/docs/environmental/fonsi/2026/EA_La%20Loma%20Tank%20_Cuba_%20public%20review.pdf?ver=TwKE-rh06vcF-VKf3I3Rmw==& 
+https://wrdb.nlr.gov/data-viewer 
+https://nsrdb.nlr.gov/data-viewer
+https://www.ncei.noaa.gov/products/land-based-station/us-climate-normals
+https://www.spa.usace.army.mil/Portals/16/docs/environmental/fonsi/2026/0167_EA_La%20Loma%20Tank%20-Cuba%20Final%20EA_signed.pdf?ver=fzJXk8Dy77EN7QZjB0fS4A%3D%3D
